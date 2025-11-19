@@ -238,6 +238,42 @@ I want someone who will admire me with that same depth, loyalty, and love💗✨
 
 
 
+
+
+
+
+
+
+<div className={boxStyle}>
+  
+I got my first kiss on 17/Nov/25 at 9:48 pm😘
+Do you want to know something, baby😌? I actually got stuck for a few seconds during the kiss 🦋 And do you even know… I got shy too🫣 
+I got that Adivayattil Manju Veena feeling 😁— soft, dreamy, magical 🎶💞
+And with your sleepy voice note 😴💗… your love ❤️… your kiss 😘… awww baby🥰, I can’t even explain that feeling 🤯✨ It was just too special🥰 
+      </div>
+
+
+
+
+
+<div className={boxStyle}>
+  
+When I propose to you, I love the way you react through your voice 🥰 It’s honestly amazing… even I get shy after hearing you 🫣 Every time I send you a video, I wait eagerly just to hear you say “Ante mwoleee” 😍and “njan stuck aayi” 😍 If you don’t say it, I feel like something is missing in that video 🥹✨.
+And today… we talked for 42 minutes 📞💞. I enjoyed every second of it — your shy voice 😚, the way you searched
+ for words 🤭, the little pauses… everything. Those tiny things are what make you my pookie🫰🏻🫶🏻. I also like your once more😁
+      </div>
+
+
+
+
+
+
+
+
+
+
+
+
 <div className>
   <button
     onClick={onNext}
