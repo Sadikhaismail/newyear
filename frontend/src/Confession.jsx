@@ -266,6 +266,75 @@ And today… we talked for 42 minutes 📞💞. I enjoyed every second of it —
 
 
 
+<div className={boxStyle}>
+  
+When I was angry and I said, “If I caught you in my hand😡…,” you suddenly asked me, “Will you give me a kiss?” 😳
+I said no… and then you said, “Will you hug me?” 🤗 Baby, at that moment I totally lost myself🫣 Even though it’s just simple words—kiss and hug—when they come from you, there’s some kind of magic ✨❤️
+Your words hit differently… they touch my heart every single time. 💖
+      </div>
+
+
+
+
+
+<div className={boxStyle}>
+  
+When I told you that I’ll propose to you properly when we meet in person,👀 and you said you’ll definitely come, I felt like laughing a little 😅❤️
+But honestly, the reality is different… I don’t even know if I’ll be able to look at you directly 😁 If you ask me whether I want to see you or not, I genuinely don’t have an answer 🤐💗.
+Because if you come… everything will change ✨
+It won’t be just imagination anymore — it will become real 💞🌙.
+      </div>
+
+
+
+
+
+<div className={boxStyle}>
+  
+The day you were preparing for your exam and presentation, you told me you missed me so much🥹… and it felt like many days passed without talking to me, even though it was just one night 😔❤️.
+You said if you don’t speak to me at night, your day feels incomplete😘… that your morning and night start and end with me 😚✨. You even told me you couldn’t sleep that night because we didn’t talk Awww babbyyy🥹… and that you only feel relaxed, peaceful, and able to sleep properly after speaking to me 😌🤗💞.
+I read everything… and I know it all came from your deepest emotions🥰
+Because it was the first time you messaged me like that😍🥰😘
+And honestly, it made me feel like I’m something magical to you… like your fantasy, baby ✨💗.
+That’s exactly how I felt😍😇
+      </div>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
