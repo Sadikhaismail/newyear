@@ -307,12 +307,14 @@ That’s exactly how I felt😍😇
 
 
 
+<div className={boxStyle}>
+
+Baby, when you say you don’t talk to other girls unnecessarily… even after working there for 2 years… it makes me sooo happy 😌❤️ It makes me feel like I’m truly special to you, like I’m the only one you’re connected to 💗
+But when you told me you glance at other girls… it killed that happiness inside me 💔
+I don’t want to control you baby… I just want to feel like I’m your only one 🤍🥺
 
 
-
-
-
-
+</div>
 
 
 
