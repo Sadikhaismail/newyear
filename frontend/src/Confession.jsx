@@ -351,9 +351,40 @@ function Confession({ onNext }) {
         when I remember about video call, I feel insecure again 😣 because you
         mean that much to me 🫶💗 But all the worries and insecurity fade away…
         when I think about that bus moment you told me 🚌💗 you and your ex
-        sitting front and back seat…🥲 and without speaking, just giving “taa
-        taaa” like strangers 😂
+        sitting front and back seat…🥲 and without speaking, just giving “taa👋🏻
+        taaa👋🏻” like strangers 😂
       </div>
+
+
+
+<div className={boxStyle}>
+
+When you said those things about Naomi Scott…😏
+
+“Avaleyum kanaan nalla rasaind”😏
+and when I asked if it was right, you were supposed to say
+“no baby, I said it by mistake, my eyes only see you and you are the only one beautiful for my eyes” 🤗💗
+…but instead you said:🤨
+
+“Adende enik thonan padille”👊🏻
+and again
+“Adil aval nalle ind atrannale njan parnje”👊🏻
+
+Even after I showed my possessiveness, you still continued:🥹
+“Nalleeeeeeeee rasa inddddd”😠
+“Ha kanumbo kanumbo crush aavum”😠👊🏻
+“Avalde pic wallpaper idanam, daily kaanaan”😡👊🏻👊🏻
+“Appo daily crush adikkuvallo”👊🏻👊🏻👊🏻
+and then you didn’t even bite because
+“Ndin avalk vedanikuum”😡😠👊🏻
+
+Baby… you said all that like a full idiot 👊🏻😡🤦‍♀️
+And the worst part — you will search her pic on Google on your own 💢😤
+In that moment I swear I wanted to be there right beside you
+and give you one punch on your nose 👊😡
+That’s how much i possessive about you 🔥🥰
+
+</div>
 
       <div className>
         <button
