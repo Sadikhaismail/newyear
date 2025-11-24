@@ -386,6 +386,57 @@ That’s how much i possessive about you 🔥🥰
 
 </div>
 
+
+
+
+<div className={boxStyle}>
+
+The moment you said
+“Ende valiya oru agraham enda ariyo?”😳
+I got fully excited to hear it 😳🤗
+
+And when you said
+“Ninde cheeks ne pidikkanam 😁”
+“Ad pidich ju ju ju ju ju aakanam”
+baby… I literally became love‑stuck right there 🥰😍🦋
+
+Because it made me feel how much you admire me…😘
+I felt butterflies… background song😜
+
+And baby I want to tell you a secret…
+I allow you to do ju ju ju ju ju ju 😁
+
+</div>
+
+
+
+<div className={boxStyle}>
+
+Baby… when you said
+“Alla enikk kitti”
+“Avale pole oru sundari ne njan kandittilla”😘
+“Avale kandappo full crush ayi… double crush…”😘
+“Avlde kann ee night sky‑ile star poleya”😘
+“Baby ne enikk atrekum ishtam”😘
+At that moment baby…
+I wanted to look into your eyes and ask, “say it again baby…” 😘
+that’s why I called you… to get that feel 🥺
+but you didn’t say anything on call 😔
+I’m still excited and waiting for that day 🥹
+to hear it directly from you ☺️💗
+
+</div>
+
+
+
+
+
+
+
+
+
+
+
       <div className>
         <button
           onClick={onNext}
