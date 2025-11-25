@@ -130,12 +130,15 @@ function Confession({ onNext }) {
       </div>
 
       <div className={boxStyle}>
-        You know, I felt a little spark when you replied to my Hazelnut proposal
-        😅💞 I actually wanted you to act all shocked, like you were hearing it
-        for the first time 😝But I didn’t tell you that that day…When you
-        replied, I got this tiny butterfly effect for 2 seconds 🦋💓But
-        honestly, I loved the way you tried your own style of being shocked, my
-        duuuuduuu 😜❤️
+      You know, I felt a little spark when you replied to my Hazelnut proposal 😅💞
+I actually wanted you to act all shocked, like you were hearing it for the first time 😝
+But I didn’t tell you that that day…
+
+When you replied, saying “I’ll buy you a Dairy Milk, but you have to give me a kiss on every bite of Dairy Milk” 😳😘
+I got that tiny butterfly effect for 2 seconds 🦋🫣
+And it was the first time you asked me for a kiss 😌💗
+
+But honestly… I loved the way you did your own style of being shocked, my duuuuduuu 😜💗
       </div>
 
       <div className={boxStyle}>
