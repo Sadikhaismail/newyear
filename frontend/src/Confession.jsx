@@ -433,6 +433,102 @@ to hear it directly from you ☺️💗
 
 
 
+<div className={boxStyle}>
+That day when my parents went to Coimbatore, I waited till 11 just to talk to you🥹, but you talked to your cousin till 12. I know they call rarely, but still… it hurt me 😔I felt angry and sad 😭, and you didn’t even notice I was upset for 3 days 💔😭
+You forgot something that affected me so much. I just felt like you didn’t value me at that moment🥹😭
+</div>
+
+
+
+
+
+
+
+
+
+<div className={boxStyle}>
+That day I was really upset because of the issue with my brother 😔. I messaged you first because I wanted to tell you, but when your mumma called, you didn’t even ask me what happened 🥹You could’ve spared one minute.🥺
+I ended up telling my cousin and felt better🙂 I called you first, but you didn’t notice 💔
+</div>
+
+
+
+
+
+
+
+<div className={boxStyle}>
+Nov 30, 2025 — the day I called you on Sunday at 9:35. You even lost your sleep for me,😍 and we talked almost the whole day😍 I felt like I could never get tired of talking to you🫣… the deeper it went, the more I wanted you ❤️😍
+
+Your sleepy voice became my biggest weakness 😘
+And when you proposed, I truly felt it🤗 It was warm, beautiful, and so real. The way your voice changed with every word felt like it came from your heart 😍😘— not just like the proposal you did on video. Awww babyyy😘 I fell for you even harder that day 🥰
+</div>
+
+
+
+
+
+
+
+
+<div className={boxStyle}>
+Nov 30, 2025 — the day we had our first video call 🤗
+Do you know how excited I was? 😳 I honestly thought you were a full-grown man from your voice and the way you talked 😅.
+But after the video call, I realised you’re my only pookie babyyy 😘😁.
+
+The way you looked on video call… omg, you looked like such a little boy 😭❤️. You have beard and moustache, but still something was missing.
+That’s why you look like pookie, not Batman 🤣💕
+
+
+And when you noticed my lips and said the upper part is heart-shaped… I blushed sooo much 🙈.But of course you didn’t notice it — because you’re a monnaaa 😂😁
+
+
+
+
+
+
+</div>
+
+
+
+
+
+
+<div className={boxStyle}>
+The day you said you look at chicks based on your mood😡… in the office, outside, in traffic, on the roadside, even at the gym 😡👊🏻. I swear, I felt like spraying pepper in your eyes every time you said “I like that”😡
+
+Babyyy Your eyes are only for looking at me, okay?🤨Not anyone else.
+And that “mood” of yours… it’s an olakkada mood 😤
+</div>
+
+
+
+
+
+
+
+<div className={boxStyle}>
+I love the way you say “kadavule”… it touches my heart so deeply 🥰
+The way you say it goes straight to my heart, and that little smile you give after… awww babyyyy 😍🥰
+It just makes me even more addicted to you 😘
+</div>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
