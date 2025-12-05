@@ -130,15 +130,17 @@ function Confession({ onNext }) {
       </div>
 
       <div className={boxStyle}>
-      You know, I felt a little spark when you replied to my Hazelnut proposal 😅💞
-I actually wanted you to act all shocked, like you were hearing it for the first time 😝
-But I didn’t tell you that that day…
+      You know… I felt a little spark when you replied to my hazelnut proposal 😁
+I actually wanted you to act all shocked, like you were hearing it for the first time 😝 but I didn’t tell you that that day…
 
-When you replied, saying “I’ll buy you a Dairy Milk, but you have to give me a kiss on every bite of Dairy Milk” 😳😘
-I got that tiny butterfly effect for 2 seconds 🦋🫣
-And it was the first time you asked me for a kiss 😌💗
+And then you said,
+“You’ll buy me Dairy Milk, but I have to give you a kiss for every bite.” 😳😘
+Baby… I literally got that tiny butterfly effect for like 2 seconds 🦋🫣
+Because that was the first time you ever talked about a kiss 😌💗
 
-But honestly… I loved the way you did your own style of being shocked, my duuuuduuu 😜💗
+I didn’t save the voice because I wasn’t sure what you’d think if I did…🫣
+But I really, really loved that reply🤗 Honestly, that was the moment I felt something for you for the first time, baby🥰
+But still… I loved the way you acted shocked in your own cute style, my duuuuduuu 😜💗
       </div>
 
       <div className={boxStyle}>
@@ -517,9 +519,95 @@ It just makes me even more addicted to you 😘
 
 
 
+<div className={boxStyle}>
+
+The day I talked about besty and said😁 I would cut your call when besty came, 🫣I actually liked the way you reacted😘 The way you got angry😡😘… I was enjoying it in a cute way.🥰🤗
+
+You said you will never say ‘I love you’ until now🤨
+But you can’t control it 🤭— you still end up saying ‘I love you’😘 to me and calling me baby,😘 because it comes naturally from you… straight from your heart🤭😍
+
+And babyyy, I only want you😊. Whether it’s as a besty or as a boyfriend or whatever it is… it’s only you🫵🏻 It’s not an option for me — you are my everything😘
+
+</div>
 
 
 
+
+
+
+
+
+<div className={boxStyle}>
+
+The day you told me about the beach and the burqa girl, our call got cut suddenly😳. I was about to call you back, but you messaged saying your time was up and you were going back to work😞
+But I expected you to say😔‘Call me… just 2 minutes, we’ll sort this out and then I’ll go back.’😢
+You didn’t say that.😭
+
+</div>
+
+
+
+
+
+
+
+<div className={boxStyle}>
+
+When you said your mumma was forcing you to marry and even sent you a pic of a girl who’s a nurse… it wasn’t easy for me to hear 😔.But I’m honestly so glad you rejected it babyyy🥰😍😘😘😘😘
+
+</div>
+
+
+
+
+
+
+
+
+
+
+<div className={boxStyle}>
+
+When you told me about the burqa nurse your mumma suggested,👊🏻 you also said you would go to the beach with her just to make me angry😡🥹 You said many things, but I got stuck on that one word —'beach"🥹
+And when I said, ‘You will hold her hand, buy biriyani, chocolate, spring potato…’ I was actually expecting you to say, ‘No, 😭that’s only ours.🥹 I won’t go with anyone else there.’
+But you didn’t.😭
+
+At that moment I felt really sad😭 You’ve mentioned things like looking at other girls, and that didn’t affect me much. But the beach part… it hurt me the most🥹😭Because the beach is something I always imagined as our place, our moment
+So hearing you talk about going there with someone else — even as a joke — 😭genuinely hurt me😭
+
+You didn’t realise it until I told you, and that’s why it hurts in reality😭
+
+</div>
+
+
+
+
+<div className={boxStyle}>
+
+
+
+</div>
+
+
+
+
+
+<div className={boxStyle}>
+
+
+
+</div>
+
+
+
+
+
+
+<div className={boxStyle}>
+
+
+
+</div>
 
 
 
