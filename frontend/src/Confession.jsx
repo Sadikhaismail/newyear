@@ -584,9 +584,59 @@ You didn’t realise it until I told you, and that’s why it hurts in reality�
 
 <div className={boxStyle}>
 
-
+7/12/2025 inaann attavum saghadaya day🥹. Aniki real ayitt hurt ayii.😭Njn avidunn mrng thanne vann nighalod samsarikkan vendi mathraann🥹.allel anikki aa week cls polum illa. Njn varum illarnn. But nighal first vattam frnd nte koode poyi. Nighal pondann njn paranjalum frnd kazhinje baakinn ariya povum nnum ariya. But nighal atleast njn nighale wait akkann vijarich nerathe varum vijarich🥹. Athum nighal cheythilla🥹. Ath anikki nighal anne value akkathe pole thonni😭.Njn athrem vattam paranjitt nighal kettilla😪. Ath ok nn vecha njn nighalod videocall propose akkannann vann nighal cheythillellum. Nighal athil vere antho vijarichikkaann anikki thonni. Athond propose akoollannum ariya.Athinann video eduth vech imma vanna ath ayakka paranj. Incase adi ayitt late ayallo vech.Then patt padi vechirinn athum ayakkan. But onnum nadannilla😢. Nighal neram vaiki varum cheyth allam flop akki😩.vaniit solve akkarnn but athum cheythilla☹️. Ath anikki vallathe hurt aaayii😭. Aa timil nighal paranjathu real aayi indyatha situation anghane aarnn. But anikki feel ayyee athum deshyam okke ayappo paranjatha inghane " nighal oro excuse parayann" ath  paranjond deshyam vann kattaki poyi inghal😭. Aa cut akkiyappo anikki anghane feel avann nighal one min think cheytho🥺. Even nighal soundum race akki😭😥. Ithokke cheythitt anghane nighakk solve aakkathe pattane😡.Nighal njn oraghan povann paranja ok parayuo😠. Nighakanne ariyana njn oraghoollann😤. Nighalkk ippozhum njn nighaloda ponda solve akk imma varumbokk namakk samsarikan anna njn uddeshikkanenn va thurann paranjale manasilavollu👊🏻. Then ath solve akannann njn aa video ayach athinn nighal react akkiyoo athum illa😔. Athum vishamaaayi☹️. Njn video call aakiitt nallam pole aarum illathe samsarikkan vanna first day aann😓.Njn illa nn parayumbokke nighal adutha plan akki😟. Appo anikki maathrano nighakk msg akathondum vilikkathondum solve akkathondum missing ullu🥺. Nighakk anghane alle😓. Nighal ann anghane povum nn njn vijarichilla😞. Njn pokko paranjunn alle paranj. Njn oru vattam ann pokko paranj athilum kooduthal vattam pondann ann paranj ath inghakk kettilla🥹. Then nighakk ponam friends okke lifil imp ann anikkum ariya. But nighal cheythee ann athinn shesham paranjathu "inn ini msg akkanda ini samsaricha ath athilum kooduthal vashalavum" nn alle😭😓. Ha vashalavum so samsarikkathe irinna okke sheriyavum nn annoo🤨. Ath pole njn ann nighal varum nn vijarich 11 vare wait akkirnn🥹. Inghal vannilla😥. Nighal karaghan poyi😤.Njn gud nyt paranjappokk nighalum gud nyt parayum nn vijarichilla🥹.Even next day nighal noon nnum vannilla🥹. Inghal bc ann anikki ariya but thettiyirikkann nighakkum ariya one min eduth njn bc ann porthann varan late avum nn prayayrinnu😢. Njn vann msg ayachalle mindi😓. Njn msg ayachillarnne ann noon inghalum msg ayachikindavilla☹️. Anikki inn nighal kk anne anth value ann thonni😢. Njn thirich varum nn ulla orappondann nighal cheythnn anikkariya😥. Bcz njn first time aann thettiyalkkk first anghottek msg ayakkane in my 22 years😩.Nighakk njn antha uddeshikkn crct ayyi ariyum but nighal athonnum cheythilla😩. Anikki nallam vishamaayi😭. First time ann inghane call cut akkinem anne avoid akkum  cheyyane😥. Vere arum annod inghane cheythikilla☹️. Nighal ann thanne solve akkarnnel njn ayanne🥹. But anikki ith orupaad vishamaayi🥹. Nighal inghane cheyyum nn njn orukkalum expect akkilla😭🥹
 
 </div>
+
+
+
+
+
+<div className={boxStyle}>
+
+Babyyy nighal paranjille " Anikki ninnod maathre childish aayitt kanikkan pattollunn'" nighade everything njn ishtappett thanne nokkane😍. Childish anelum flirt akkane anelum allaamm🥰. Nighal video call nte idel kiss tharathille sherikki butterfly varum heartbeat race aavum😘. But njn ath express akkane nerathu imma varuonn ulla pediyond purathu varaathe aann🫣. But njn ath nallam admire akkalind😁. Then antenn reaction kittandavumbo ulla nighade expressionum anikki kanaann ishtaannn 😁babyyyyyy.😘
+
+</div>
+
+
+
+
+
+
+<div className={boxStyle}>
+
+Daaaaa ni paranjille athooo oru Bloody fool vann ninte lip pinch cheyth nn😠. Anthada ninte kayy vallathum edukkan poyaarnno😡 aval lip lekk kayy kond varane vare👊🏻. Kayy bc aarnn nn lle kunthaaann😤. Face thirikkarnnille athum patoolla😡. Njn venipikkende vere oraall vann venipichh😤. Then avale kanaann bhanghi ind butterfly vanuuunn lle👊🏻. Deshyam vann kattakithh thanne aann😡. Just nighal filter maatumbo athil oruthi varand kiss tharane pole athanne anikki ishtavathilla😡. Pinne ith anikki pattuo illaaaaaaa😡. Kettooodaaaaa njn maathram mathi😍, Ante maathram aannn🥰. Ith appozhum orma indayikotte🤨.
+
+</div>
+
+
+
+
+<div className={boxStyle}>
+
+Nighalk anth konda njn nighalaayitt close aayinn ariyuo. Bcz nighal njn first time pic ayachenn shesham pinne pic choichikilla🥰. Ath pole first one month oru vattam polum voice ayakkinn paranjo call akk nn paranjo force akikilla🥰. Then nighal anghane oru comfort zone akki thann anikki nighale🥰. Pinne njn voice ayach fully chat cheyyumbozhum nighal call akk paranjilla🥰. Ann atharrnn comfort attached avan reason. But ippo nighal ithokke cheyy paranjille ath uncomfort aayii feel aavum😁. Bcz babyyyy ippo anikki ithokke aann ishtamm😍. Nighal annod video call cheyy kanan thonnunn parayane😍 miss cheythu parayane okke😘
+
+</div>
+
+
+
+<div className={boxStyle}>
+
+Babyy babykk oru karyam ariyuo anikki shyum blushum oppam vannathu appozhann ariyuo🫣. Nighal njn ninne vech imagination cheythotte choichille annn🥰. Anikki yes nno no nno paryan pattilla😁. Anikki randum varinillarnnu😁. Ath vallathe oru feel ann aa oru question kodnne☺️. Njn sherikki stuck aayi😁. Appo nighal anne kandirinne anikki anghane shy varaaann kandenne😁. Unfortunately kandilla🫣. Athokkee vallapozhum varathollu😍.
+
+</div>
+
+
+
+
+
+
+<div className={boxStyle}>
+
+Anikki inghalell attavum ishtappetta karyam antha ariyuo oru kiss tharuo choikkanatha😁. Aa choikunna reethi anikki bhayaghara ishta🥰. Ath choikkumbo oro vattavum nighale thanne njn addict avind😍. Ath anghane nn anikkum areella🥰. Then njn tharumbo ath anghane feel ayinn explain cheyyunne kekkanum anikki ishtaaa😘. Nighal njn orupaad admire aakind babyyyyy😍
+
+</div>
+
 
 
 
@@ -608,6 +658,53 @@ You didn’t realise it until I told you, and that’s why it hurts in reality�
 
 
 </div>
+
+
+
+
+
+
+
+<div className={boxStyle}>
+
+
+
+</div>
+
+
+
+
+
+
+<div className={boxStyle}>
+
+
+
+</div>
+
+
+
+
+
+
+<div className={boxStyle}>
+
+
+
+</div>
+
+
+
+
+
+
+<div className={boxStyle}>
+
+
+
+</div>
+
+
 
 
 
