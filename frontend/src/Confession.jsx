@@ -701,7 +701,9 @@ Njn oro vattam oro karyam parayumbozhum nighalk oro thirakkavum 😥imma vilikum
 <div className={boxStyle}>
 
 
-
+Njn  baby nod anghane ulla video onnum kananda paranj adi ayappo Baby paranjille 😔 " Anikki ante self vende ni parayane allam kekkanonn"😓,  " Ni cheyyinilla paranj bakki ullorum anghane avanoonn"😓.Then nighal njn paranje kond alla nighal kanoolla paranjn "nighal ok paranjille njn oru maari kaattum nn paranja😭🥹". Ith paranjappo anikki sherikki feel ayyi😭. Anikki ariya nighakk oraale ath moodil nokkanam nokkaruthu nnum, Athh pole anghane ulla video okke kananoo vende nn ulle okke nannayi ariyumnn🥹. Baby de self kalayanam anghane onnum njn mean cheythikilla🥺. Nighal anghane paranjappo anikki inghane parayanam nn indarnn ☹️"Njn orikkalum nighalod nighal anghane ulla video kanaruthu nn parayan padillarnn. Athum nighade freedom, privacy and nighade ishtaann, then Aa oru moment njn ariyathe keri idapettu, Nighal antha cheyyunn nn nighal arinj thanne nighal cheyyanenn ulla think aa oru moment ll anikki vannilla"😢. Inghane okke parayam😔. But njn parayilla babyyy orppayum njn parayilla njn aayittt🥺. Njn sad ayond njn korch maaraann nokki  continue ayitt nammal fight akkane kond anne ithonnum effect akkillaann ulla reethikki😖. But anikki baby nod anghane nikkanum areella🥹. Athra heavy feel ann ariyuo anghane change aayee maari kataann😭. Njn inghane parayollu " Anthanelum babykky njn maathram mathi"🥺. Anikki nighal areyum nokkane ishtalla ath anikki oru uncomfort feel ann tharanne🥺.
+Babyyyyy nighal vere aare nokkann paranjalum anikki ishtavinilla even ath video anelum☹️. Athin njn anth cheyyana☹️. Anikki inghal anghane vere oronn kananathu ishtalla athonda paranj ath nighakkum ariya😟. Allathe nighade self kalayanam anghane onnum njn vijarichikilla😟. anikki babyy baby ne maathre ann ishtam baby kananda nna njn paranj baaki arem karyam anikki venda baby🥺
+ . Baby kananda babyyy🥹. Areyum vaya nokkaruth unexpected anelum ath baby skip akkanam🥹. Anikki baby anthanelum anne maathram athaa anikki ishtam🥺. Njn athre deshyam vannalum anikki vere  onn imagination anelum nighade karyam avaumbo njn over ayyi react avind possessive aavind🥹. Ee situation babyy understand akkanam😞.
 </div>
 
 
@@ -711,7 +713,7 @@ Njn oro vattam oro karyam parayumbozhum nighalk oro thirakkavum 😥imma vilikum
 
 <div className={boxStyle}>
 
-
+Anikki nighalod oro vattam thettumbozhum 😁 ini msg akoolla vilikooolla vijarikkum 😁 but once nighade msg oru 1 hr ll kooduthal kanaathayaa pinne anikki pidich nikkan ariyillaaa babyyy😂. Njn appo thanne msg akkum😁. Athre paranjalum njn kekkanilaa😁. Once video call cheyth nighal onn nallam pole samsaricha thanne ante prblm okke poyi mood change aavum😘. But korcherem aa deshyathil pidich chiri varaathe pidich nikkane anikki maathre ariyooo😁. Anikki anghane nighakk msg akkathe kanathe vilikkathe irikaan ulla karyam thettiya polum anghane nn ariyathe reethikki marii😍. Anikki inghal athrekki ishtannnnnn babyyy🥰.
 
 </div>
 
@@ -723,20 +725,7 @@ Njn oro vattam oro karyam parayumbozhum nighalk oro thirakkavum 😥imma vilikum
 
 <div className={boxStyle}>
 
-
-
-</div>
-
-
-
-
-
-
-
-
-<div className={boxStyle}>
-
-
+Babyy anikki ishtapetta oru karyam anthann ariyuoo🫣. Njn flirt cheyth samsarikkumbo nighakk react cheyyan pattatha situation😁. Aa timil nighal ans cheyyan pattand ninn wrds thappunnathum chirikkanathum ni nere samsarikk parayunnathhm "kadavule"😘 pattanilla nn parayunnathum anikk ithokke inghal parayumbo thonnana aaa oru feel athinn wrds illa explain akkann ariyuooo babyyyy😍. Nighal parayille manasilaakkadi situation nn. Appozha onoodee anikko angh flirt akann thonaaa😁🫣.
 
 </div>
 
@@ -749,7 +738,20 @@ Njn oro vattam oro karyam parayumbozhum nighalk oro thirakkavum 😥imma vilikum
 
 <div className={boxStyle}>
 
+Baby, when I compare myself to something, at that moment it means I want you to prioritise me over anything 💔. But whenever I compare myself with anything, you give priority to the thing I compare 😞. Then you said you don’t need to compare anything with you. When I compare myself with Avengers, you went silent for 6 minutes, and I really felt like you like Avengers more 🥺. I know that Avengers is just a show, but I need to hear that I am the most important one in your life 💗. But you didn’t say it 😔.
 
+</div>
+
+
+
+
+
+
+
+
+<div className={boxStyle}>
+
+Nighal ship imagination 10 pere kurichokke paranjile😡 ath parayumbo anikki deshyam varathe onnumalla😡👊🏻 anikki express cheyyan pattinindarnilla 😡anikki nighal anne allathe vere aare paranjalum ishtavilla deshyam varum😡👊🏻. Ann thanne nighal nighade or girl friend vilich Sunday kananam paranj surprise ind pranj one hour mathinn paranj nnokke paranj🥹. Nighal ponel aniki vishosam illathe onnumalla🥹. But anikki ath ishtavathilla anikki nn alla inghane oru situation njn inghalod paranj ponam paranja nighal ok parayuoo illallooo🥹. Ith ante mind kidann odane kond maathram ann aa 10 pere paranjathum ath pole kai kond oronn kattittum😡👊🏻 pidich njn alakkathe irinnn👊🏻😡. But babyyy anikki nighal kanan ponam paranjenn shesham comfort akkiya reethi ishtaayi. "Aval anikki sis ne poleya paranjille😁". But.......................
 
 </div>
 
@@ -763,7 +765,7 @@ Njn oro vattam oro karyam parayumbozhum nighalk oro thirakkavum 😥imma vilikum
 
 <div className={boxStyle}>
 
-
+Nighalude 10 per 10 trophy onninn twins llle🤨. Avante olakkamale team👊🏻😡. Anikki aa stry ni kiss cheyth vere palathum cheyth lledaaaaa😡👊🏻. Ninne avar rape cheythalle🤨. Ninne cheythathalla ni anne cheythooonn paranj poyathalle🤨. Anikki ninte thalell adikknam indarnn njn allathe vere areyum imagination akkan padillaa paranj😡. But nighal aduth illathe poyi allell adichene👊🏻. Ninakk avide okkeyaaa Hickey kittyeee🤨😡. Ninakk aarum hickey tharaaan padillaaa👊🏻. Anikki ath ishtalla👊🏻. Ninakk anthanelum njn maathram mathi babyyy🥰. Allathe nighal vere onninum priority kodkkaruth🤨. Baby kk njn maathre ullu😘. Ath maathram mathi🥰.
 
 </div>
 
