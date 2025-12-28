@@ -793,7 +793,9 @@ Baby njn first time face hold aaki cheek ll kiss thannappo baby paranjille " Ani
 
 <div className={boxStyle}>
 
+Baby, I know what I’m feeling is not a crush or infatuation🫣. A crush usually comes from fantasy😁—imagining someone in a certain way, like messy hair 😁and ideal fantasy —but this isn’t that😬. Infatuation comes from constant caring and 24/7 attention🙂, even when someone is busy or away, and this isn’t that either😬.
 
+My biggest fear is that if I express it and the answer is “no,”🥹 I don’t know how I would react🥹 or how I would handle that situation🥹
 
 </div>
 
@@ -807,7 +809,7 @@ Baby njn first time face hold aaki cheek ll kiss thannappo baby paranjille " Ani
 
 
 <div className={boxStyle}>
-
+Babyy even when we fight👊🏻, there’s this moment I really love😁. When you tell me to smile and I smile like I’m in a close-up ad😁, the expression on your face at that moment🫣🤭—I love it🥰. And in the middle of the fight, when I try to act like I’m okay or that everything’s resolved😁, and you say you don’t want the act☺️, that you want the real me🥰… hearing that gives me butterflies😘,  even i am angry Babyyy😘
 
 
 </div>
@@ -822,6 +824,9 @@ Baby njn first time face hold aaki cheek ll kiss thannappo baby paranjille " Ani
 
 <div className={boxStyle}>
 
+Baby, I don’t have a problem if you don’t message me at noon🥹. But when you ask me to wait🥹, at least tell me if you’re busy so I don’t keep waiting🥹. You already know I wait for you, and at that time it feels like you don’t consider me🥹, and that turns into anger🥹.
+When I told you this, you said you already have “150 tension” and can’t remember everything. If i have any problems, you can tell me and we can solve it together🥹. That really hurt me😭. And the next day when you said “work nte idel..... pole kanikkalenn”, it hurt again😭🥹.
+I know you may say things like that casually with friends, but it makes me upset😭.
 
 
 </div>
