@@ -853,17 +853,7 @@ Baby ann njn inghalod thettille nnitt inghal wrk idel inghane kanikkalle paranj 
 
 <div className={boxStyle}>
 
-
-
-</div>
-
-
-
-
-
-<div className={boxStyle}>
-
-
+Baby, whenever I overthink or feel confused🤔, I want you to be the one who makes it calm😘. Now I just want to talk to you about everything🫣. It’s not about what we talk about😁—I just want to hear you😘😍.
 
 </div>
 
@@ -871,13 +861,6 @@ Baby ann njn inghalod thettille nnitt inghal wrk idel inghane kanikkalle paranj 
 
 
 
-
-
-<div className={boxStyle}>
-
-
-
-</div>
 
 
 
